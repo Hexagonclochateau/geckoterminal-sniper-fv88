@@ -1,4 +1,4 @@
-# 
+# Get the ultimate birdeye sniper bot with smart Bot for birdeye sniper bot | new-token-detection & price-impact-analysis. Featuring new-token-detection and price-impact-analysis,
 
 
 
